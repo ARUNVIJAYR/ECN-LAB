@@ -26,6 +26,8 @@
 ![WhatsApp Image 2026-03-27 at 10 14 26 AM](https://github.com/user-attachments/assets/c78d3c17-c195-440f-a8a3-ac7729ea361e)
 
 
+**CALCULATION**
+![WhatsApp Image 2026-03-27 at 10 14 53 AM](https://github.com/user-attachments/assets/43f4075e-de7a-4a39-bbf6-1817799b839b)
 
 
 
